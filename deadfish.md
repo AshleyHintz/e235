@@ -1,14 +1,14 @@
 #**How to Get Over a Fish's Death**
 
-Have you come home and found your favorite fish dead in its tank? Did one of your fish die recently and you canít stop thinking about it? Getting over the loss of any pet can be hard, but with time you can move on.
+Have you come home and found your favorite fish dead in its tank? Did one of your fish die recently and you can‚Äôt stop thinking about it? Getting over the loss of any pet can be hard, but with time you can move on.
 
 ##Part 1 Coping with the Loss
 
-1. *Take time to grieve.* There is nothing strange or wrong with mourning the passing of a living being that was important to you, indeed it is a natural reaction.[1] Donít feel the need to hurry up and get over the death of your fish. People need different amounts of time to grieve - there is no set amount of time for when grieving should end. Take the time that you need to work through this.
+1. *Take time to grieve.* There is nothing strange or wrong with mourning the passing of a living being that was important to you, indeed it is a natural reaction.[1] Don‚Äôt feel the need to hurry up and get over the death of your fish. People need different amounts of time to grieve - there is no set amount of time for when grieving should end. Take the time that you need to work through this.
 
 2. *Understand your grief.* Grieving is a process. Although some people may not understand, you may go through all of the five stages of grief (or just a couple of them) due to the loss of your fish.[2] The emotional pain you feel as a result of losing your fish may be deeper than you expected. The stages include denial, anger, bargaining, depression, and finally acceptance.
 You may not want to believe that your fish is dead. For a few days, you could be in denial, not wanting to accept that your fish is really gone.
-Feeling angry at yourself for what you think you could or should have done to save your fish is also a normal stage of grieving. Donít be too hard on yourself, however.
+Feeling angry at yourself for what you think you could or should have done to save your fish is also a normal stage of grieving. Don‚Äôt be too hard on yourself, however.
 Many people feel depressed after the loss of a pet. It is okay to cry or feel sad for a while immediately following the death.
 
 3. *Talk to people that understand.* These may be family members, friends, or even an online forum. Share what you are feeling with them. These are people that care about you, and empathize with what you are going through. They can help you work through what you are feeling.
@@ -26,20 +26,20 @@ Make a slideshow or frame a photo of your fish.
 
 6. *Use your aquarium as a memorial.* You can use your tank to honor the memory of your fish in a variety of creative ways.
 If you are still using the tank for other fish, you may want to put something in there in memory of the fish you lost. It could be a tiny hand-made tombstone, or a pretty rock or seashell with a coloring and pattern that reminds you of your fish.
-If you donít have other fish, you can clean the aquarium out and use it to hold a memorial plant or flowers.
+If you don‚Äôt have other fish, you can clean the aquarium out and use it to hold a memorial plant or flowers.
 If the tank is empty, and looking at it causes you too much pain, then clean it out and put it away. Put a nice plant or decoration in the place where the fish tank used to be.
 You can also decide to keep you're fish in safe place like a box, it can be homemade, or have your little one cremated.
 
 ##Part 2 Taking Care of the Remains
 
-1. *Make sure itís really dead.* Sometimes fish can appear dead, but are actually sick or in distress. Before you dispose of the body, make sure that your fish is actually dead.[5]Sometimes fish can swim on their side or upside down because they are constipated. Check the gills, eyes, and skin carefully.
-Watch the gill covers closely. For a few moments, watch your fish to make sure itís not just breathing very slowly.
+1. *Make sure it‚Äôs really dead.* Sometimes fish can appear dead, but are actually sick or in distress. Before you dispose of the body, make sure that your fish is actually dead.[5]Sometimes fish can swim on their side or upside down because they are constipated. Check the gills, eyes, and skin carefully.
+Watch the gill covers closely. For a few moments, watch your fish to make sure it‚Äôs not just breathing very slowly.
 Does it respond when you gently nudge it?
 If the skin has become discolored or white, it may indicate rotting, parasites, or disease.
-Look at your fishís eyes. If the eyes have turned grey, then the fish has passed on.
+Look at your fish‚Äôs eyes. If the eyes have turned grey, then the fish has passed on.
 
-2. *Try to determine why your fish died.* If possible, look the fish over and try to figure out why it died. Especially if you have other fish in that tank or plan on getting another fish in the future, this can help you prevent future deaths. It can also give you a sense of closure, so that you arenít continually wondering why your fish died.
-Check the water levels. Was the tank too full? Did the fish jump out because the water level was too high or because there wasnít a lid on the tank? Was there enough water in the tank?
+2. *Try to determine why your fish died.* If possible, look the fish over and try to figure out why it died. Especially if you have other fish in that tank or plan on getting another fish in the future, this can help you prevent future deaths. It can also give you a sense of closure, so that you aren‚Äôt continually wondering why your fish died.
+Check the water levels. Was the tank too full? Did the fish jump out because the water level was too high or because there wasn‚Äôt a lid on the tank? Was there enough water in the tank?
 Test the water quality. Are the pH, ammonia, nitrite, etc. levels what they should be?
 Is there obvious injury (split fins, open wounds, etc.)? Does it appear the fish got into a fight or injured by some of the tank equipment?
 Do you see any signs of disease, infection, or parasites? Is the body discolored or bloated?
@@ -47,8 +47,8 @@ Is it possible your fish ate too much or became poisoned by something foreign in
 
 3. *Properly and respectfully dispose of the body.* Once you are sure your fish is dead, then you need to take care of the remains. There are several options you have for taking care of the body, and the final decision is up to you. While many people flush their fish down the toilet, this is not recommended.[6] If the fish died of a disease, it could pollute the local water.
 Don't put your dead fish in a body of water, such as a pond, river, or the ocean. Your fish could be carrying a disease which can infect wildlife.[7]
-You can bury it in the backyard, a composting area, or a flower pot. Make sure you bury the body at least two feet deep (60 cm) so that other animals donít dig the body up.
-Some people believe that the body doesnít contain the ìspiritî of the fish anymore and simply place their fishís body in the trash.
+You can bury it in the backyard, a composting area, or a flower pot. Make sure you bury the body at least two feet deep (60 cm) so that other animals don‚Äôt dig the body up.
+Some people believe that the body doesn‚Äôt contain the ‚Äúspirit‚Äù of the fish anymore and simply place their fish‚Äôs body in the trash.
 
 ##Part 3 Taking Care of Your Other Fish
 
