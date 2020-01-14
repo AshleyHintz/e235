@@ -34,7 +34,7 @@ You can also decide to keep you're fish in safe place like a box, it can be home
 
 ## Part 2- Taking Care of the Remains
 
-![fishbody](https://www.wikihow.com/images/thumb/d/d8/Get-Over-a-Fish%27s-Death-Step-9.jpg/aid417222-v4-728px-Get-Over-a-Fish%27s-Death-Step-9.jpg)
+
 
 1. *Make sure it’s really dead.* Sometimes fish can appear dead, but are actually sick or in distress. Before you dispose of the body, make sure that your fish is actually dead.[5]Sometimes fish can swim on their side or upside down because they are constipated. Check the gills, eyes, and skin carefully.
 Watch the gill covers closely. For a few moments, watch your fish to make sure it’s not just breathing very slowly.
@@ -53,6 +53,8 @@ Is it possible your fish ate too much or became poisoned by something foreign in
 Don't put your dead fish in a body of water, such as a pond, river, or the ocean. Your fish could be carrying a disease which can infect wildlife.[7]
 You can bury it in the backyard, a composting area, or a flower pot. Make sure you bury the body at least two feet deep (60 cm) so that other animals don’t dig the body up.
 Some people believe that the body doesn’t contain the “spirit” of the fish anymore and simply place their fish’s body in the trash.
+
+![fishbody](https://www.wikihow.com/images/thumb/d/d8/Get-Over-a-Fish%27s-Death-Step-9.jpg/aid417222-v4-728px-Get-Over-a-Fish%27s-Death-Step-9.jpg)
 
 ## Part 3- Taking Care of Your Other Fish
 
