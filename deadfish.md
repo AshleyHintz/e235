@@ -1,8 +1,8 @@
-#**How to Get Over a Fish's Death**
+# **How to Get Over a Fish's Death**
 
 Have you come home and found your favorite fish dead in its tank? Did one of your fish die recently and you can’t stop thinking about it? Getting over the loss of any pet can be hard, but with time you can move on.
 
-##Part 1 Coping with the Loss
+## Part 1 Coping with the Loss
 
 1. *Take time to grieve.* There is nothing strange or wrong with mourning the passing of a living being that was important to you, indeed it is a natural reaction.[1] Don’t feel the need to hurry up and get over the death of your fish. People need different amounts of time to grieve - there is no set amount of time for when grieving should end. Take the time that you need to work through this.
 
@@ -30,7 +30,7 @@ If you don’t have other fish, you can clean the aquarium out and use it to hol
 If the tank is empty, and looking at it causes you too much pain, then clean it out and put it away. Put a nice plant or decoration in the place where the fish tank used to be.
 You can also decide to keep you're fish in safe place like a box, it can be homemade, or have your little one cremated.
 
-##Part 2 Taking Care of the Remains
+## Part 2 Taking Care of the Remains
 
 1. *Make sure it’s really dead.* Sometimes fish can appear dead, but are actually sick or in distress. Before you dispose of the body, make sure that your fish is actually dead.[5]Sometimes fish can swim on their side or upside down because they are constipated. Check the gills, eyes, and skin carefully.
 Watch the gill covers closely. For a few moments, watch your fish to make sure it’s not just breathing very slowly.
@@ -50,7 +50,7 @@ Don't put your dead fish in a body of water, such as a pond, river, or the ocean
 You can bury it in the backyard, a composting area, or a flower pot. Make sure you bury the body at least two feet deep (60 cm) so that other animals don’t dig the body up.
 Some people believe that the body doesn’t contain the “spirit” of the fish anymore and simply place their fish’s body in the trash.
 
-##Part 3 Taking Care of Your Other Fish
+## Part 3 Taking Care of Your Other Fish
 
 1. *Make sure your other fish are healthy.* Check your fish often to make sure everything is okay. Is there anything you can do to prevent your other fish from dying? If your fish died from a disease or parasite, keep a close eye on any remaining fish in case they get sick, too.
 Change the water immediately after you remove your dead fish. This will help remove harmful viruses, bacteria, etc. that may be in the water.
